@@ -1,1 +1,1 @@
-# Zadanit5_Ryzhkov
+# Zadanie5_Ryzhkov
